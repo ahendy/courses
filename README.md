@@ -1,4 +1,3 @@
 # courses
 image of courses i have to take 
-
-https://gyazo.com/cda0de0c401ee926233c646625790051
+https://gyazo.com/230be5b4588d2e26fcd3d24d9418b96a
